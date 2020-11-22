@@ -1,1 +1,1 @@
-# HyperX-NGenuity-Profiles
+# HyperX NGenuity Profiles
